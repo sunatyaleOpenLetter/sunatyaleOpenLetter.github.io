@@ -1,1 +1,0 @@
-# sunatyaleOpenLetter.github.io
